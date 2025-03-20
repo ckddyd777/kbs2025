@@ -1,2 +1,2 @@
 # kbs2025
-For victory
+For victory, to the moon
